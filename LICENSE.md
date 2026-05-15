@@ -1,4 +1,4 @@
-# 
+# best blur sniper bot | profit-calculator + wash-trading-execution offers the most advanced blur sniper bot, with profit-calculator and wash-trading-execution. Ideal for
 
 
 
